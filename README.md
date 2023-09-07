@@ -1,1 +1,1 @@
-# MagnusSlettebo
+# Hi there! My name is Magnus
